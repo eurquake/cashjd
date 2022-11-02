@@ -1,7 +1,9 @@
 ![graph](https://activity-graph.herokuapp.com/graph?username=cashjd&theme=gruvbox)
 
-i make cheats for video games
+i cheat in video games
 
-turik#4713
+go kys u fucking loser
+
+ca$h#2006
 
 
